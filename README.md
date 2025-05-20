@@ -8,5 +8,5 @@ Meu nome e maria clara fabri
 
 - ## você pode entrar em contato comigo
 
-- maria.lavl@escola.pr.gov.br
+- maria.laval@escola.pr.gov.br
  
